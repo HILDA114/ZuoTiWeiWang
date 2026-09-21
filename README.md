@@ -3,6 +3,7 @@
 > 胜者为王，做题亦为王。
 
 ---
+<img width="1080" height="2309" alt="864e2b4ca1f8c7c40a001324f3e337c9" src="https://github.com/user-attachments/assets/11432a4a-7171-4e1b-8a37-267cd7fb79af" />
 
 **20 秒。**
 
